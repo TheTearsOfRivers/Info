@@ -1,6 +1,7 @@
 # Info
  [//]:(cutouts by criticalgalaxy)
-       <img width="940" height="481" alt="Untitled21_20260502124632" src="https://github.com/user-attachments/assets/17ffe224-ce7b-4d58-9e5e-80bd8c0c22ed" />
+       ![Uploading Untitled21_20260502124945.png…]()
+
 
 
  ⁎⠀⁺⠀˖⠀![](https://i.postimg.cc/wMxKTjFF/coral.gif)⠀renryn / zelei⠀˓⠀✶⠀ ࣪ ˖⠀he / him⠀˖⠀!!⠀![](https://i.postimg.cc/FsWvz3MS/wave.gif)⠀◟
