@@ -1,6 +1,6 @@
 # Info
  [//]:(cutouts by criticalgalaxy)
-<img width="736" height="377" alt="Untitled21_20260502123649" src="https://github.com/user-attachments/assets/ffd567f3-708b-48a8-8941-cdfd4397891f" />
+       <img width="736" height="377" alt="Untitled21_20260502123649" src="https://github.com/user-attachments/assets/ffd567f3-708b-48a8-8941-cdfd4397891f" />
 
  ⁎⠀⁺⠀˖⠀![](https://i.postimg.cc/wMxKTjFF/coral.gif)⠀renryn / zelei⠀˓⠀✶⠀ ࣪ ˖⠀he / him⠀˖⠀!!⠀![](https://i.postimg.cc/FsWvz3MS/wave.gif)⠀◟
 ![](https://i.postimg.cc/y82zXBYY/fish.gif)⠀✦⠀⁺⠀◟transmasc / demi aroace⠀![](https://i.postimg.cc/5NN1fnR1/jelly.gif)⠀𓏲⠀ ๋࣭ ⠀⁎⠀male⠀⊹⠀.
